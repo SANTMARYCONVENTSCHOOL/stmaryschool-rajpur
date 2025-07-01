@@ -1,1 +1,1 @@
-# stmaryschool-rajpur
+santmaryconventschool.github.io
